@@ -5,4 +5,4 @@
 - 👯 I’m looking to collaborate on ... anything cool
 - 🤔 I’m looking for help with ... nothing atm
 - 💬 Ask me about ... Video streaming 😋
-- 📫 How to reach me: ... LinkedIn, Twitter
+- 📫 How to reach me: ... [LinkedIn](https://www.linkedin.com/in/rahulgolwalkar/), [Twitter](https://twitter.com/rahulgolwalkar)
